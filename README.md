@@ -1,16 +1,14 @@
-### Hi there 👋
 
-<!--
-**SMELE70/SMELE70** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ * BIEMVENIDO
 
-Here are some ideas to get you started:
+* MEU NOME E ANNA KRAOLINY
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+* EU GOSTO DE COMER
+
+[ENTRAR EN COMTATO]
+
+*PIRES.ANNA@ESCOLA.PR.GOV.BR
+
+*ANNAKAROLINEGONÇALVESPIRES.GMAL.COM
+
+![DESCRIÇÃO DO GIF](![image](https://github.com/SMELE70/SMELE70/assets/133136050/258b97b8-f534-4fb4-b438-4c62f48e3eb4)
